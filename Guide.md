@@ -1,1 +1,1 @@
-## Pending ... (dw will be back with the best gude :)
+## Pending ... (dw will be back with the best guide :)
